@@ -1,0 +1,2 @@
+# GrowMaster
+Diário canábico
